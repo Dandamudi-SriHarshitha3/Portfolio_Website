@@ -6,4 +6,6 @@
 
 ![card-2](https://github.com/Dandamudi-SriHarshitha3/Portfolio_Website/assets/109742758/3bda5d22-7ba1-46f9-921c-1d73ad73af93)
 
+![passportPicture](https://github.com/Dandamudi-SriHarshitha3/Portfolio_Website/assets/109742758/1dc8c808-968e-4d46-8095-98cad492adba)
+
 
