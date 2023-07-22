@@ -10,3 +10,5 @@
 
 ![filetype-html](https://github.com/Dandamudi-SriHarshitha3/Portfolio_Website/assets/109742758/a3c9b7a4-52d5-4f9b-81a7-f4a055291d5c)
 
+![facebook](https://github.com/Dandamudi-SriHarshitha3/Portfolio_Website/assets/109742758/8698f782-ceb7-4da1-b45a-6a744a244686)
+
